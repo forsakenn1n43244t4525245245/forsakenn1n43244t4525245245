@@ -1,7 +1,7 @@
 
  i love 007n7, ok >^ω^<
 
-<img align="right" src="https://files.catbox.moe/ksoctc.png" alt="image" width="500" />
+<img align="right" src="" alt="image" width="500" />
 
 
 <img align="right" src="https://files.catbox.moe/16t60l.png" alt="image" width="500" />
