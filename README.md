@@ -1,6 +1,7 @@
+<img width="400" height="144" alt="tumblr_cf53529ad8a410c69b8ea7ad94a0df97_504aed64_400" src="https://github.com/user-attachments/assets/634f5342-4533-426d-a3b9-703d5cdef51a" />
 
 
-i love 007n7, ok >^ω^<
+   i love 007n7, ok >^ω^<
 
 
 <img align="right" src="https://files.catbox.moe/16t60l.png" alt="image" width="500" />
