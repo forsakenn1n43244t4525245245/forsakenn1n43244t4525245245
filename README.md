@@ -1,5 +1,5 @@
 
- i love 007n7, ok >^ω^<
+ i love 007n7, ok >^ω^< ![ln6spd](https://github.com/user-attachments/assets/d313964c-516b-4539-bcc7-1f1ba340ac1a)
 
 
 
@@ -14,5 +14,5 @@
 
 
 
-still working on it cuz im lazy . . . ![ln6spd](https://github.com/user-attachments/assets/d313964c-516b-4539-bcc7-1f1ba340ac1a)
+
 
