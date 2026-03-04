@@ -4,8 +4,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/rygdvu.png" alt="image" width="550" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage!](https://puplexiss.straw.page)ㅤㅤ♡ㅤㅤㅤ [rentry!](https://rentry.co/iwant1x1x1x1okbye)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage!](https://puplexiss.straw.page)ㅤㅤ♡ㅤㅤㅤ [rentry!](https://rentry.co/iwant1x1x1x1okbye)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[tiktok!](https://www.tiktok.com/@yoimiyua1?is_from_webapp=1&sender_device=pc) ㅤ[roblox!](https://www.roblox.com/users/1919254040/profile)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[tiktok!](https://www.tiktok.com/@yoimiyua1?is_from_webapp=1&sender_device=pc) ㅤ[roblox!](https://www.roblox.com/users/1919254040/profile)
 ‎
